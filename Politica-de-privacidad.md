@@ -1,7 +1,7 @@
 Política de privacidad  
 ----------------
  ### Introducción
-Nuestra política de privacidad lo ayudará a comprender qué información recopilamos en Mi Embarazo, cómo la usa Mi Embarazo y qué opciones tiene. Mi Embarazo creó la aplicación Mi Embarazo como una aplicación gratuita. Este SERVICIO es proporcionado por Mi Embarazo sin costo y está diseñado para usar tal cual. Si elige utilizar nuestro Servicio, entonces acepta la recopilación y el uso de información en relación con esta política. La información personal que recopilamos se utiliza para proporcionar y mejorar el servicio.No usaremos ni compartiremos su información con nadie excepto como se describe en esta Política de Privacidad.
+Nuestra política de privacidad lo ayudará a comprender qué información recopilamos en Mi Embarazo, cómo la usa Mi Embarazo y qué opciones tiene. Mi Embarazo creó la aplicación Mi Embarazo como una aplicación gratuita. Este SERVICIO es proporcionado por Mi Embarazo sin costo y está diseñado para usar tal cual. Todos los datos que se presentan en la aplicacion, fueron contribuidos por el doctor Diego Fernando Ocampo, Si elige utilizar nuestro Servicio, entonces acepta la recopilación y el uso de información en relación con esta política. La información personal que recopilamos se utiliza para proporcionar y mejorar el servicio.No usaremos ni compartiremos su información con nadie excepto como se describe en esta Política de Privacidad.
 Los términos utilizados en esta Política de privacidad tienen el mismo significado que en nuestros Términos y condiciones, a los que se puede acceder en nuestro sitio web, a menos que se defina lo contrario en esta Política de privacidad.
 
  ### Recopilación y uso de información
